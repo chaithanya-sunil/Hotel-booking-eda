@@ -74,7 +74,7 @@ that can help hospitality businesses make data-driven decisions.
 
 
 
-\- \*\*Chaithanya AS\*\* — \[your-email@gmail.com] — Contact for inquiries regarding 
+\- \*\*Chaithanya AS\*\* — \[chaithanyasunil607@gmail.com] — Contact for inquiries regarding 
 
 &#x20; this analysis and dataset usage.
 
